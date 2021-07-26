@@ -1,0 +1,5 @@
+- 👋 sup, i’m @sewigala
+- 👀 i’m interested in coding many more beyond tumblr theme tinkering.
+- 🌱 i’m currently learning real human languages (i'm a lit student) but also HTML.
+- 💞️ i’m looking to collaborate on ... none for now, but looking forward to it.
+- 📫 how to reach me ... raymobs#5493
